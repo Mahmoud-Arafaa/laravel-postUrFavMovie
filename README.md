@@ -1,1 +1,1 @@
-# Through it you can registrate and share your favorite movies with people.
+Through it u can registrate and share ur favorite movies with people.
